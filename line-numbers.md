@@ -2,7 +2,7 @@ Jimmy was here...
 #### 2
 gir  My name is ali
 #### 4
-#### 5
+I have the worst luck with technology
 #### 6
 #### 7
 #### 8
