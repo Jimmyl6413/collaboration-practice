@@ -6,7 +6,7 @@ I have the worst luck with technology
 #### 6
 I am in 5th Period SEP10
 #### 8
-github is really good
+github is really awesome
 #### 10
 #### 11
 #### 12
