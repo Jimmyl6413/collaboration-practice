@@ -4,7 +4,7 @@ gir  My name is ali
 #### 4
 #### 5
 #### 6
-#### 7
+I am in 5th Period SEP10
 #### 8
 #### 9
 #### 10
